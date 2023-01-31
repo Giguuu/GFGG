@@ -1,5 +1,5 @@
 # GFGG
-METAS PARA ESTE AÑO
+METAS PARA ESTE AÑO:
 No distraerme nada.
 Sacar buenas calificaciones.
 Pasar mis extras y no irme a ninguno.
